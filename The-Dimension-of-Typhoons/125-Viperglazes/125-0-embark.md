@@ -28,3 +28,7 @@ The leader that `Viperglazes` deserves.
 We set out next to a mountain, which has always felt like home. The wagon parks not far from the cliffs, with a river to the north and very, **very** few trees.
 
 ![treeme](http://f.cl.ly/items/1i1r2d3o242G1v1i2Q16/Image%202015-12-09%20at%208.38.34%20PM.png)
+
+We must do what we were born to do.
+
+**[STRIKE THE EARTH!](./125-1-spring.md)**
