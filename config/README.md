@@ -21,4 +21,4 @@ we should stick to these setting to make sure no surprising interactions take pl
 
 Or as LNP puts it
 
-![LNP Options](http://f.cl.ly/items/2p2I0A1B1f3m0X2k3a3Y/Image%202014-08-07%20at%202.50.31%20AM.png)
+![LNP Options](http://pixxx.wtf.cat/3t1z281c3g3U/Image%202015-12-09%20at%207.30.36%20PM.png)
