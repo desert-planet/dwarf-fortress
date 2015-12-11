@@ -180,3 +180,60 @@ Now the laziest of the group have somewhere to gather without having to deal wit
 ![stores](http://pixxx.wtf.cat/0G3e2G0x1r3m/Image%202015-12-10%20at%2011.08.02%20PM.png)
 
 At least we won't starve yet, despite my lack of a farm or brewery.
+
+### 2nd Felsite, 125, Late Spring
+
+I am now looking for some place to call a farm. Ideally, a place I can seal off and connect with the rest of the underground network.
+
+![probe](http://pixxx.wtf.cat/3g3M3N2w0x1F/Image%202015-12-10%20at%2011.27.30%20PM.png)
+
+I'll try probing the fire clay to the west first.
+There seems to be plenty out there, and most of around us is stone.
+
+The probe doesn't begin for about a week.
+
+![finally](http://pixxx.wtf.cat/0O2n3r1X1D0p/Image%202015-12-10%20at%2011.30.16%20PM.png)
+
+Maybe they like starving.
+
+![not the best](http://pixxx.wtf.cat/0X343H46261e/Image%202015-12-10%20at%2011.31.14%20PM.png)
+
+There's not a whole lot to go on once I got into the mountain.
+
+We'll see what's more west, once these bastards get around to it.
+
+### 14th Felsite, Late Spring
+
+![future farmland](http://pixxx.wtf.cat/202G1B063E13/Image%202015-12-10%20at%2011.33.58%20PM.png)
+
+The expanded probe was succesfull, and while I wait for more to be dug out I can start growing some plants.
+
+![plants](http://pixxx.wtf.cat/2n3X0z093t1K/Image%202015-12-10%20at%2011.36.04%20PM.png)
+
+With a small place to stockpile some initial seeds.
+
+`Bomrek` and `Id` have graciously volonteered to become farmers! Of their own free will and everything!
+
+![free will](http://pixxx.wtf.cat/292K180m1i3y/Image%202015-12-10%20at%2011.37.33%20PM.png)
+
+It was probably related to their love of wood based activities.
+
+The first plot will bring us *Plump Helmets* all year. There's almost nothing you can't do with them.
+
+![delicious](http://pixxx.wtf.cat/0d0u0C3s3B3v/Image%202015-12-10%20at%2011.39.33%20PM.png)
+
+The remaining plots are essentially a random mix.
+
+### 19th Felsite, 125, Late Spring
+
+![seed pile](http://pixxx.wtf.cat/0a3D3C1w3H2e/Image%202015-12-10%20at%2011.44.12%20PM.png)
+
+The seed stock pile is in place, which means I can move all of the seeds over.
+
+According to the latest counts, we might even live!
+
+![counts](http://pixxx.wtf.cat/2R2d3q032D1q/Image%202015-12-10%20at%2011.45.11%20PM.png)
+
+![work finally happens](http://pixxx.wtf.cat/0y2t0I1E2C0o/Image%202015-12-10%20at%2011.46.00%20PM.png)
+
+And everyone is actually productive! I must be great at this.
