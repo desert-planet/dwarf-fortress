@@ -122,3 +122,27 @@ It took most of the season, but we can finally make our way towards management!
 ![office furnishings](http://pixxx.wtf.cat/3M3n3m240R25/Screen%20Recording%202015-12-10%20at%2010.46.34%20PM.gif)
 
 Soon, things will finally kick up.... as soon as we can find the mason.
+
+![wood](http://pixxx.wtf.cat/2m1Q2P3o3P0U/Image%202015-12-10%20at%2010.49.14%20PM.png)
+
+At least the wood cache (:trollface:) is filling up.
+
+### 13th Slate, 125, Mid-Spring
+
+![chair and table](http://pixxx.wtf.cat/1p293G3X1x0i/Image%202015-12-10%20at%2010.50.19%20PM.png)
+
+We're almost a well oiled machine! I'm not going to wait for doors to get things started.
+
+![claimed](http://pixxx.wtf.cat/412g280S3a0d/Image%202015-12-10%20at%2010.52.08%20PM.png)
+
+And the general stockpile is starting to take shape.
+
+### 16th Slate, 125, Mid-Spring
+
+![yes](http://pixxx.wtf.cat/211M2P1U3d3Y/Image%202015-12-10%20at%2010.53.42%20PM.png)
+
+And we're off!
+
+![nobles](http://pixxx.wtf.cat/1W1o0z06132H/Image%202015-12-10%20at%2010.54.04%20PM.png)
+
+How nice it is to be a proper civilization. (Or so I'm told.)
