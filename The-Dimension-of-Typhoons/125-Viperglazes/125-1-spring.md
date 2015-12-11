@@ -48,3 +48,19 @@ She's about to have a lot to do, and to great precision.
 The hope hasn't been crushed yet. All things in due time.
 
 ![hope](http://pixxx.wtf.cat/2v2M2p1k0m1I/Image%202015-12-10%20at%2010.05.03%20PM.png)
+
+Now, outdoors. The animals can graze a bit west of the wagon.
+
+![west of wagon pasture](http://pixxx.wtf.cat/0m152Z2y2p3a/Image%202015-12-10%20at%2010.15.03%20PM.png)
+
+It's not close enough to matter, and we're not exactly covered in grass. The refuse and corpses go just south of that, for now at least.
+
+![traaaash](http://pixxx.wtf.cat/1Z0Z050n2V3H/Image%202015-12-10%20at%2010.16.21%20PM.png)
+
+### 19th Granite, 125, Early Spring
+
+Fuck fishing. How about do something useful.
+
+![lolno](http://pixxx.wtf.cat/2U261E3f2c2M/Image%202015-12-10%20at%2010.18.21%20PM.png)
+
+On second though, let's just remember that and get a fishery.
