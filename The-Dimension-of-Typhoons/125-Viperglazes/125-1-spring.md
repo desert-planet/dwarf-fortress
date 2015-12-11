@@ -64,3 +64,41 @@ Fuck fishing. How about do something useful.
 ![lolno](http://pixxx.wtf.cat/2U261E3f2c2M/Image%202015-12-10%20at%2010.18.21%20PM.png)
 
 On second though, let's just remember that and get a fishery.
+
+And while on the topic
+
+![river](http://pixxx.wtf.cat/1I2Q200p292J/Image%202015-12-10%20at%2010.19.35%20PM.png)
+
+Better have a water source if we need one.
+
+### 21st Granite, 125, Early Spring
+
+I'm slowly realizing what planning benefits.
+
+![picks](http://pixxx.wtf.cat/1J0D2i2B3u2g/Image%202015-12-10%20at%2010.21.38%20PM.png)
+
+I'll need to remember to make up for this vacation.
+
+![jobs](http://pixxx.wtf.cat/1t0r0D1Z0j10/Image%202015-12-10%20at%2010.20.21%20PM.png)
+
+We're almost near a workshop area, though.
+
+![the dig](http://pixxx.wtf.cat/0t09080k2t0m/Image%202015-12-10%20at%2010.23.34%20PM.png)
+
+### 23rd Granite, 125, Early Spring
+
+![the mason's workshop is in progress](http://pixxx.wtf.cat/3b0I172F3x2D/Image%202015-12-10%20at%2010.27.38%20PM.png)
+
+The mason is getting put down. Time to put some of these rocks to use!
+
+Might as well set up for a mechanic, and plan for a  drawbridge instead of doors.
+
+![more workshops](http://pixxx.wtf.cat/2y3C272e2g2m/Image%202015-12-10%20at%2010.28.48%20PM.png)
+
+### 27th Granite, 125, Early Spring
+
+To start gathering all the woods in the yard, I'm going to start piling them in front of the entrance.
+
+![wood pile](http://pixxx.wtf.cat/041P0k3f141V/Image%202015-12-10%20at%2010.36.09%20PM.png)
+
+It'll at least give the lazy suckers something to do.
