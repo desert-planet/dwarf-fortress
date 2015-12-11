@@ -102,3 +102,23 @@ To start gathering all the woods in the yard, I'm going to start piling them in 
 ![wood pile](http://pixxx.wtf.cat/041P0k3f141V/Image%202015-12-10%20at%2010.36.09%20PM.png)
 
 It'll at least give the lazy suckers something to do.
+
+![work work work](http://pixxx.wtf.cat/3a1n412M1j00/Image%202015-12-10%20at%2010.37.39%20PM.png)
+
+### 28th Granite, 125, Early Spring
+
+![workshop](http://pixxx.wtf.cat/312J2E2U3b3d/Image%202015-12-10%20at%2010.39.03%20PM.png)
+
+Time to set up the mechanic's shop, before the mason's shop is even finished :crying_cat_face:
+
+![office](http://f.cl.ly/items/22043b1f2W1S3P1M3o2X/Image%202015-12-10%20at%2010.40.55%20PM.png)
+
+The office is dug, too bad the lazy dorfs haven't gotten to the workshops, so I don't have doors, chairs, or tables.
+
+### 9th Slate, 125, Mid-Spring
+
+It took most of the season, but we can finally make our way towards management!
+
+![office furnishings](http://pixxx.wtf.cat/3M3n3m240R25/Screen%20Recording%202015-12-10%20at%2010.46.34%20PM.gif)
+
+Soon, things will finally kick up.... as soon as we can find the mason.
