@@ -168,3 +168,15 @@ And while I'm at, every good fort needs a Quantum Pile Of trash.
 ![trash, but with science](http://f.cl.ly/items/1O3M1z1G1N0S2k1E1Q3Q/Image%202015-12-10%20at%2011.02.57%20PM.png)
 
 Dwarves work in mysterious ways. :alien:
+
+### 27th Slate, 125, Mid-Spring
+
+Finally, the ugliest Great Meeting Space ever is finished.
+
+![meeting space](http://pixxx.wtf.cat/072n0x352d0t/Image%202015-12-10%20at%2011.06.54%20PM.png)
+
+Now the laziest of the group have somewhere to gather without having to deal with pesky sunlight.
+
+![stores](http://pixxx.wtf.cat/0G3e2G0x1r3m/Image%202015-12-10%20at%2011.08.02%20PM.png)
+
+At least we won't starve yet, despite my lack of a farm or brewery.
