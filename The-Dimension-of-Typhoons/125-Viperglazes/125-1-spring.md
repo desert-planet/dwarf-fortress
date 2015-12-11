@@ -145,4 +145,26 @@ And we're off!
 
 ![nobles](http://pixxx.wtf.cat/1W1o0z06132H/Image%202015-12-10%20at%2010.54.04%20PM.png)
 
-How nice it is to be a proper civilization. (Or so I'm told.)
+How nice it is to be a proper civilization. (Or so I'm told.) Might as well keep the momentum going by building things.
+
+![stuff](http://pixxx.wtf.cat/41163V1n1y3U/Image%202015-12-10%20at%2010.55.58%20PM.png)
+
+I'm going to need it soon anyway, or else these dwarves are going to revolt sooner rather than WAY LATER.
+
+### 20th Slate, 125, Mid-Spring
+
+We can finally put things inside!
+
+![stockpile](http://pixxx.wtf.cat/1C0R1k143u0N/Image%202015-12-10%20at%2010.59.28%20PM.png)
+
+![of stuff](http://pixxx.wtf.cat/1W2m2k1q011g/Image%202015-12-10%20at%2010.59.20%20PM.png)
+
+For now it will hold everything that doesn't go instantly bad, but it means we can finally use the wagon for what it's best at: **decoration**.
+
+![statues](http://pixxx.wtf.cat/040n242S2E10/Image%202015-12-10%20at%2011.01.03%20PM.png)
+
+And while I'm at, every good fort needs a Quantum Pile Of trash.
+
+![trash, but with science](http://f.cl.ly/items/1O3M1z1G1N0S2k1E1Q3Q/Image%202015-12-10%20at%2011.02.57%20PM.png)
+
+Dwarves work in mysterious ways. :alien:
