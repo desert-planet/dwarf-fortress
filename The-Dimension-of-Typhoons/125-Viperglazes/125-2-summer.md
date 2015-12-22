@@ -80,3 +80,13 @@ And we didn't even have a riot about it. How pleasant. How civilized, even!
 ![fishery](http://pixxx.wtf.cat/143j3r2L1W2W/Image%202015-12-22%20at%2010.58.55%20AM.png)
 
 I'll add a fishery, for variety.
+
+### 17th Malachite, 125, Mid Summer
+
+![good](http://pixxx.wtf.cat/040A241f1z1u/Image%202015-12-22%20at%2011.00.26%20AM.png)
+
+Good for *Bomrek Shemelis*.
+
+*"I have improved my growing. That was very satisfying!"*
+
+!["I have improved my growing. That was very satisfying!"](http://pixxx.wtf.cat/0X330m2C330q/Image%202015-12-22%20at%2011.01.39%20AM.png)
