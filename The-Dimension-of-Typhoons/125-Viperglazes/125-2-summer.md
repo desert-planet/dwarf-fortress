@@ -26,3 +26,23 @@ And now, for some deffence, before it's too late.
 A pair of drawbridges will protect the entrances to the main fort, as well as the farm.
 
 They're built of granite, because I'm classy.
+
+![volunteering in action](http://pixxx.wtf.cat/1E372k2J0c1D/Image%202015-12-22%20at%2010.16.44%20AM.png)
+
+*Fath Stesokmonom* decided to help mine, how nice of her.
+
+![She always said](http://pixxx.wtf.cat/0f3I110Z0X1T/Image%202015-12-22%20at%2010.17.51%20AM.png)
+
+Close enough.
+
+### 22nd Hematite, 125, Early Summer
+
+![migrants](http://pixxx.wtf.cat/3i0D3I211S3d/Image%202015-12-22%20at%2010.23.49%20AM.png)
+
+Migrants! I hope they brought picks. :crying_cat_face:
+
+![walking in](http://pixxx.wtf.cat/283m16292D0l/Screen%20Recording%202015-12-22%20at%2010.26.13%20AM.gif)
+
+We are now 11
+
+![11](http://pixxx.wtf.cat/1B2E3Y242921/Image%202015-12-22%20at%2010.29.47%20AM.png)
