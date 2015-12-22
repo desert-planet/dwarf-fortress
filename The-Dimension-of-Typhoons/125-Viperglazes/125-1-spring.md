@@ -237,3 +237,19 @@ According to the latest counts, we might even live!
 ![work finally happens](http://pixxx.wtf.cat/0y2t0I1E2C0o/Image%202015-12-10%20at%2011.46.00%20PM.png)
 
 And everyone is actually productive! I must be great at this.
+
+### 24th Felsite, 125, Late Spring
+
+As spring comes to an end, I set in motion some more building projects.
+
+![downstairs](http://pixxx.wtf.cat/094636343z3m/Screen%20Recording%202015-12-22%20at%209.47.50%20AM.gif)
+
+I've began the planning of the second floor of the main fort, which will contain the cooking and brewing areas at the very minimum.
+
+![farms](http://pixxx.wtf.cat/1y2l0S091d3z/download/Screen%20Recording%202015-12-22%20at%209.48.55%20AM.gif)
+
+As well as the beginning of the underground farm connection, which we will definitely need to use in the case of a seige.
+
+And with this, we've survived spring.
+
+[Summer 125](./125-2-summer.md)
