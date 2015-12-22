@@ -96,3 +96,43 @@ The only thing left is begin the production of food and drink. Which is totally 
 ![agenda](http://pixxx.wtf.cat/293q3J3T1c3H/Image%202015-12-22%20at%2011.04.17%20AM.png)
 
 Everything is **JUST FINE**. Go me.
+
+### 28th Malachite, 125, Mid-Summer
+
+The second connection is complete.
+
+![stairs](http://pixxx.wtf.cat/0p2J1T0D0b0T/Image%202015-12-22%20at%2011.10.09%20AM.png)
+
+Which coincides with the completion of the food stockpile, which I will now begin filling.
+
+The use of the general stockpile is reduced.
+
+![general](http://pixxx.wtf.cat/3N0J2a3r0v1z/Image%202015-12-22%20at%2011.10.57%20AM.png)
+
+### 3rd Galena, 125, Late Summer
+
+![woops](http://pixxx.wtf.cat/3g280s1f1A1L/Image%202015-12-22%20at%2011.13.18%20AM.png)
+
+A little to eager, it would seem. Time to make some emergency pots.
+
+![pots](http://pixxx.wtf.cat/2G3B471s1O1I/Image%202015-12-22%20at%2011.14.14%20AM.png)
+
+Also, in excess.
+
+![workshops](http://pixxx.wtf.cat/1Y1g433b3W1O/Image%202015-12-22%20at%2011.15.10%20AM.png)
+
+And to double down on industry, starting with a wood shop, and an additional mason.
+
+On the bright side, our food and drink stores are finally on the rise!
+
+![up and up](http://pixxx.wtf.cat/31310O472L0K/Image%202015-12-22%20at%2011.16.08%20AM.png)
+
+So we've been running out of space in a *good* way.
+
+### 8th Galena, 125, Late Summer
+
+![finished shops](http://pixxx.wtf.cat/2i2s2R2M1l19/Image%202015-12-22%20at%2011.22.10%20AM.png)
+
+The first floor workshops are now finished, and reinforced with some stockpiles of material for faster work.
+
+A busy dorf is a happy dorf.
