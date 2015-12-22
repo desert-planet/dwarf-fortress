@@ -48,3 +48,35 @@ We are now 11
 ![11](http://pixxx.wtf.cat/1B2E3Y242921/Image%202015-12-22%20at%2010.29.47%20AM.png)
 
  But still just the two picks. This is going to be the kind of fun that takes a while.
+
+### 26th Hematite, Early Summer
+
+A good news, bad news situation here.
+
+![zzzz](http://pixxx.wtf.cat/3I213j2t2J1G/Screen%20Recording%202015-12-22%20at%2010.42.20%20AM.gif)
+
+*Lolor Kubukkanzud* has finally reached the cooking workshops area. The bad news is that is fell asleep there.
+
+![pissed](http://pixxx.wtf.cat/2T1M1O0R2b0p/Image%202015-12-22%20at%2010.44.39%20AM.png)
+
+And she's not happy about it.
+
+### 10th Malachite, 125, Mid-Summer
+
+![almost brew time](http://pixxx.wtf.cat/0N0i1Q201N0x/Image%202015-12-22%20at%2010.50.29%20AM.png)
+
+We are almost in the age of drink! The cooking workshop areas have been dug out.
+
+### 16th Malachite, 125, Mid Summer
+
+![all is well](http://pixxx.wtf.cat/1G0t0n0V353R/Image%202015-12-22%20at%2010.58.00%20AM.png)
+
+All is well in the world. We can now cook and brew.
+
+![in time](http://pixxx.wtf.cat/3V3g2i1M403b/Image%202015-12-22%20at%2010.58.25%20AM.png)
+
+And we didn't even have a riot about it. How pleasant. How civilized, even!
+
+![fishery](http://pixxx.wtf.cat/143j3r2L1W2W/Image%202015-12-22%20at%2010.58.55%20AM.png)
+
+I'll add a fishery, for variety.
