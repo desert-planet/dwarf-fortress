@@ -46,3 +46,5 @@ Migrants! I hope they brought picks. :crying_cat_face:
 We are now 11
 
 ![11](http://pixxx.wtf.cat/1B2E3Y242921/Image%202015-12-22%20at%2010.29.47%20AM.png)
+
+ But still just the two picks. This is going to be the kind of fun that takes a while.
