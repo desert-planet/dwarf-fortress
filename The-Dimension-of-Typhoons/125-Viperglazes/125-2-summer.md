@@ -90,3 +90,9 @@ Good for *Bomrek Shemelis*.
 *"I have improved my growing. That was very satisfying!"*
 
 !["I have improved my growing. That was very satisfying!"](http://pixxx.wtf.cat/0X330m2C330q/Image%202015-12-22%20at%2011.01.39%20AM.png)
+
+The only thing left is begin the production of food and drink. Which is totally on the agenda.
+
+![agenda](http://pixxx.wtf.cat/293q3J3T1c3H/Image%202015-12-22%20at%2011.04.17%20AM.png)
+
+Everything is **JUST FINE**. Go me.
